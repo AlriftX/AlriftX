@@ -1,0 +1,7 @@
+- 👋 Hey everyone, it's @Al_rift
+- 💻 I’m interested in Python, HTML, Scratch, JavaScript, and pretty much any coding language!
+- 💡 I’m currently learning Python and Scratch!
+- 🗣 I’m looking to collaborate on pretty much on anything!
+- 👉 You can check out my Scratch profile: https://scratch.mit.edu/users/-Al_rift-/
+- 🧒 Pronouns: He/Him :D
+- 🧠 Fun fact: I'm a musician and I'm currently learning Japanese!
